@@ -1,1 +1,1 @@
-# https://firairo.github.io/rsschool-cv/cv
+# https://firairo.github.io/rsschool-cv/cv 
