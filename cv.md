@@ -17,3 +17,4 @@ Education: Belarusian Trade and Economics University of Consumer Cooperative Spe
 Free conference Open IT GOMEL
 
 English level: A2 Pre-Intermediate
+
